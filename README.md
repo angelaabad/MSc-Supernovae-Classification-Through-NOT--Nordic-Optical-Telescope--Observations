@@ -1,2 +1,2 @@
-# MSc-Supernovae-Classification-Through-NOT--Nordic-Optical-Telescope--Observations
+# MSc-Supernovae-Classification-Through-NOT-Observations
 dslksncksnvk
